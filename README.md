@@ -1,1 +1,1 @@
-# greetings
+Greetings. My name is Jebuiz y'har. If my calculations are correct, you should be receiving this transmission in the year 2013 AD. It amuses me that you used to calculate your dates in relation to the life of an ancient man. You see, we have a slightly different timescale.
